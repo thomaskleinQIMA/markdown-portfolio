@@ -1,1 +1,1 @@
-![Map of the world](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.co.uk%2FPoster-Geography-Students-Teachers-High-Quality%2Fdp%2FB079GSTYRN&psig=AOvVaw32W1Kxsx2I3M-uNRylo9J1&ust=1600836804991000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMjKoIT8--sCFQAAAAAdAAAAABAD)
+![Map of the world](https://images-na.ssl-images-amazon.com/images/I/71bnFMEYbKL._AC_SL1000_.jpg)
