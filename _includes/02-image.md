@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Map of the world](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.co.uk%2FPoster-Geography-Students-Teachers-High-Quality%2Fdp%2FB079GSTYRN&psig=AOvVaw32W1Kxsx2I3M-uNRylo9J1&ust=1600836804991000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMjKoIT8--sCFQAAAAAdAAAAABAD)
